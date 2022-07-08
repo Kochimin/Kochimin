@@ -10,4 +10,4 @@ You can click the Preview link to take a look at your changes.
 --->apuntece aki no se quede fuera
 Inscribase
 ya y resiba los servicios
-s q se le ofrece si tiene alguna duda o pregunta hasmelo saber 
+q se le ofrece si tiene alguna duda o pregunta hasmelo saber 
